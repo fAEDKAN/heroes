@@ -2,7 +2,7 @@
 
 ## Listado de Nombres:
 
-### Aaron Arias
+### Aaron Arias 26 Neuquen, Neuquen, Argentina
 
 ### Geremias Zalokar 19 CutralCo, Neuquen, Argentina
 
